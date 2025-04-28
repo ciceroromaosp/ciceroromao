@@ -34,13 +34,13 @@ Gestor de Tráfego Pleno — BE Serviços Digitais (Fev 2024 — Fev 2025)
 
 Assistente de Marketing Ads — Blocks Revit (Mar 2025 — Presente)
 
-Gestor de Tráfego Júnior — BKS Marketing Empresarial
+Gestor de Tráfego Júnior — BKS Marketing Empresarial (Jun 2023 — Jan 2024)
 
-Analista de Mídia Júnior — Programa Ganhe Bolsa
+Analista de Mídia Júnior — Programa Ganhe Bolsa (Jun 2019 — Jan 2020)
 
-Analista de Marketing Sênior — Agência O Social Media
+Analista de Marketing Sênior — Agência O Social Media (Nov 2018 — Jan 2022)
 
-Assessoria de Comunicação Pleno — Grupo D.A Digital Assessoria
+Assessoria de Comunicação Pleno — Grupo D.A Digital Assessoria (Ago 2022 — Jan 2023)
 
 🏆 Certificações
 Comunidade Sobral de Tráfego Pago
